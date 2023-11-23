@@ -1,4 +1,7 @@
+
 - 👋 Hi, I’m @cheno21
+- i am biggner here
+- 
 - 👀 I’m interested in computer programing
 - 🌱 I’m currently learning online jobs
 - 💞️ I’m looking to collaborate to someone who is willnig to work with me
